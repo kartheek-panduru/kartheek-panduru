@@ -7,7 +7,7 @@
 
 - 👨‍💻 You can also checkout my portfolio at [https://kartheek-panduru.github.io/Portfolio/](https://kartheek-panduru.github.io/Portfolio/)
 
-- 📫 How to reach me **https://in.linkedin.com/in/kartheek-panduru-3a76b5160**
+- 📫 How to reach me **https://www.linkedin.com/in/kartheek-panduru/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
